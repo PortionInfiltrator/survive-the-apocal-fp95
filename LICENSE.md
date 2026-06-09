@@ -1,4 +1,4 @@
-
+survive the apocalypse automatic Script offers the most advanced survive the apocalypse Script, with unlimited stamina and private server access.
 
 
 
